@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @51gma
+- 👀 I’m interested in Cybersecurity, python programming, football and CS:GO.
+- 🌱 I’m currently learning Python and hacking.
+- 💞️ I’m looking to collaborate on anything really
+- 📫 How to reach me: Discord: 51gma#5940
